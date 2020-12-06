@@ -9,7 +9,9 @@ My growth mindset is best exemplified by the books I continue to read and apply.
 If you are looking for someone who can grow a unique and critical group and position it, as well as the staff within it, for maximum success, that means you need someone who can coach the stars to keep on shining and help polish those whose luster is hidden. It means you need someone who can handle the technical details but recognizes that soft skills are a skill. You need someone who can go beyond just working with them as individuals and help form them into a high functioning team. My background and skills make me the right person for this challenge!
 
 Sincerely,
+
 Annie Carter
 
 (206) 245-00861
+
 annie.t.carter@gmail.com
